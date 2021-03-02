@@ -1,0 +1,2 @@
+#segunda - rumoaoproximonivel
+#terca - jornadainfinita]
